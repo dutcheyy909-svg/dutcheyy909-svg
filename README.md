@@ -6,11 +6,11 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... a emo guitiar vibe 
-- 🌱 I’m currently learning ... to 
-- 👯 I’m looking to collaborate on ... techno tracks need vocals for them 
-- 🤔 I’m looking for help with ...building a website,
-- 💬 Ask me about ...
-- 📫 How to reach me: ...reach me through this
+- 🌱 I’m currently learning ... to blend diffrent elements together
+- 👯 I’m looking to collaborate on ... trap hiphop, vibes tracks
+- 🤔 I’m looking for help with ...to collaborate with other fellow artits and singer and producers 
+- 💬 Ask me about ...anything about music 
+- 📫 How to reach me: ...reach mee through facebook 
 - 😄 Pronouns: ...Dutcheyy
 - ⚡ Fun fact: ...
 -->
